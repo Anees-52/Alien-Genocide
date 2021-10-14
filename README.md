@@ -1,2 +1,2 @@
 # Alien-Genocide
-Illegal aliens from the depths of mars have launched a desperate attack in order to plunder Earth for its resources. Watch our fellow humans kill them all. ;)
+Watch pathetic humans attemtping to bomb our comrades ships only to see them phase through our superior vessles. ;)
